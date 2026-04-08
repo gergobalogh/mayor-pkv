@@ -17,3 +17,4 @@ If the tool allows, add a short clip of Boc speaking at a press conference promi
 For voice: specify "ironic, disappointed Cluj resident voice".
 Length: keep it under 60s for maximum virality.
 
+https://x.com/ggreenwald/status/2041125830307291390
